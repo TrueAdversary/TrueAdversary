@@ -60,7 +60,7 @@ $\color{#1aba42}{\text{DNI list and thin ice are listed lower.}}$
 
   <summary>Click me to open!</summary>
   
--- <img width="20" height="20" alt="emoji" src="https://github.com/user-attachments/assets/cee4c1dc-1258-4f65-aaee-a7da3466388c" /> `***DNI*** : zoo, pr3d4tors, n3crophiles, n4zi, homophobes, transphobes, racists, d4rkshippers, radqueers, terf, radfem, ppl who spread nsfl/gore material, xenophobes <sup>(esp russophobes)</sup>, Z-patriots or active Russian goverment supporters, ppl who hc that 1x is Telamon/Shedletsky's child, religion obsessed people.
+-- <img width="20" height="20" alt="emoji" src="https://github.com/user-attachments/assets/cee4c1dc-1258-4f65-aaee-a7da3466388c" /> `***DNI*** : zoo, pr3d4tors, n3crophiles, n4zi, homophobes, transphobes, racists, d4rkshippers, radqueers, terf, radfem, ppl who spread nsfl/gore material, xenophobes <sup>(esp russophobes)</sup>, Z-patriots or active Russian goverment supporters, ppl who hc that 1x is Telamon/Shedletsky's child, religion obsessed people, Twixxel supporters.
 
 And a word about past friends - if I was the one ending the friendship, it means you're in my DNI list. If I blocked you EVERYWHERE, it means I had a reason. I do not wish to have any interaction, but if you did, consider that you just ignored and disrespected my boundaries. </3
 
