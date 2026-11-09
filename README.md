@@ -5,7 +5,7 @@
 
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=17&pause=18&color=23CF08&center=true&vCenter=true&random=true&width=435&lines=1x1x1x1+WAS+HERE.;1x1x1x1+IS+COMING!;YOU'VE+BEEN+HACKED+BY+1X1X1X1!;00111110+00111010+00101001;XD+INSIGNIFICANT+NOOB.;i'm+evil;1x1x1x1+WAS+HERE.;1x1x1x1+IS+COMING!;YOU'VE+BEEN+HACKED+BY+1X1X1X1!;00111110+00111010+00101001;XD+INSIGNIFICANT+NOOB.;i'm+evil;1x1x1x1+WAS+HERE.;1x1x1x1+IS+COMING!;YOU'VE+BEEN+HACKED+BY+1X1X1X1!;00111110+00111010+00101001;XD+INSIGNIFICANT+NOOB.;i'm+evil;you+STINK.+take+A+SHOWER.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=17&pause=18&color=23CF08&center=true&vCenter=true&random=true&width=435&lines=1x1x1x1+WAS+HERE.;1x1x1x1+IS+COMING!;YOU'VE+BEEN+HACKED+BY+1X1X1X1!;00111110+00111010+00101001;XD+INSIGNIFICANT+NOOB.;i'm+evil;1x1x1x1+WAS+HERE.;1x1x1x1+IS+COMING!;YOU'VE+BEEN+HACKED+BY+1X1X1X1!;00111110+00111010+00101001;XD+INSIGNIFICANT+NOOB.;i'm+evil;1x1x1x1+WAS+HERE.;1x1x1x1+IS+COMING!;YOU'VE+BEEN+HACKED+BY+1X1X1X1!;00111110+00111010+00101001;XD+INSIGNIFICANT+NOOB.;i'm+evil;2x2+sucks.;GET+THAT+NECROBLOXICON+AWAY+FROM+ME+NONONOONONO;you+STINK.+take+A+SHOWER.)](https://git.io/typing-svg)
 
 </div>
 
@@ -33,7 +33,7 @@ I also go by $\color{#42d472}{\text{He/they/it}}$ and identify myself as $\color
 
 <img width="120" height="20" alt="adversary" src="https://github.com/user-attachments/assets/852d5a48-4039-46f7-822b-278a4fc346d8" />
 
-<img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" /> $\color{#05a650}{\text{Sleeping = afk/offtab. Ask for c+h, friends/moots can c+h freely.}}$ <img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" />
+<img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" /> $\color{#05a650}{\text{Sleeping = afk/offtab. Friends, moots, 1xshed fans or Shedletsky cosp can c+h freely, unless DNI.}}$ <img width="20" height="20" alt="green2" src="https://github.com/user-attachments/assets/850bc11d-bc30-424d-949e-d66df659d770" />
 
 
 </div>
@@ -137,13 +137,13 @@ I like to follow ppl's github, if I consider them cool or interesting г:<
   
 </details>
 
-<img width="20" height="20" alt="starr" src="https://github.com/user-attachments/assets/57b295c1-3ced-40f9-a2ee-530f801a81a9" /> I also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to anger issues, having troubles with understanding some social norms or morals and not liking to talk to people at all. Might be a reason why I act like some cartoon villain wannabe or comically rude.
+<img width="20" height="20" alt="starr" src="https://github.com/user-attachments/assets/57b295c1-3ced-40f9-a2ee-530f801a81a9" /> I also associate myself with $\color{#42d472}{\text{1x1x1x1}}$. Not that I kin them, tho I can relate to him due to having troubles with understanding some social norms or morals and not liking to talk to people at all, maybe being slightly aggressive. Might be a reason why I act like some cartoon villain wannabe or comically rude.
 
-. I also think i might be a fictkin of them, since I noticed the fact of how often I look at 1x and think "this is me" or consider some mischaracterization as much as if someone would mischaracterize me </3.
+.im still not sure, if im fictkin or not (maybe fictflicker or otherlink), as im not sure if it was involnutary or i chose it myself. So be free to teach me abt some terms that might fit me more.!
 
 <img width="170" height="20" alt="1xblink2" src="https://github.com/user-attachments/assets/181a8030-0879-465e-8c9f-0132efd112f4" />
 
-I have a $\color{#42d472}{\text{stupid typing quirk}}$, where I can *misspell* stuff or *miss a letter*. It's kind of on purpose and on accident at the same time, tho I can lock in and type normally.
+I have a $\color{#42d472}{\text{stupid typing quirk}}$, where I can *misspell* stuff or *miss a letter*. It's kind of on purpose and on accident at the same time, tho I can lock in and type normally. Using comas instead of dots too or typing like tha..t...
 
 Honorable mention of cool ppl I know ^_^
 
